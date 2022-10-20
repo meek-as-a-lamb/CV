@@ -18,6 +18,8 @@
 
 🎮🔗🔍**Selected Group Exhibitions**🌀♦️🔌
 
+2022 [*ATM × WORM: Borderless Point*](https://www.audio-trading-manual.kr/index.html), Oil Culture Tank Park, Seoul
+
 2021 [*Sound Abject*](https://factory2.kr/SoundAbject), factory 2, Seoul
 
 2020 *Han : Sum Project*, LaHeen Gallery, Seoul (worked with Jae-hyung Park)
