@@ -49,13 +49,13 @@
 
 🎫🎗🧘🏻‍♀️**Residencies**💻⌛️⏳
 
-2022 ['acePIRAR](https://www.proyectoace.org/en/home-2/), Proyecto'ace, Buenos Aires
+2022 [*'acePIRAR*](https://www.proyectoace.org/en/artistas/), Proyecto'ace, Buenos Aires
 
-2020 The First Wave, Cheong-Gang Shipyard, Geoje
+2020 *The First Wave*, Cheong-Gang Shipyard, Geoje
 
-2020 Baeyangjang Project : Baeyang, Bae-yang-jang, Tong-Young
+2020 *Baeyangjang Project : Baeyang*, Bae-yang-jang, Tong-Young
 
-2018 The Mall, CAS, London
+2018 *The Mall*, CAS, London
 
 
 
