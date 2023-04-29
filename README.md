@@ -49,7 +49,7 @@
 
 🎫🎗🧘🏻‍♀️**Residencies**💻⌛️⏳
 
-2022 [*'acePIRAR*](https://www.proyectoace.org/en/artistas/), Proyecto'ace, Buenos Aires
+2022 [*'acePIRAR*](https://www.proyectoace.org/en/artistas/hee-ju-im-2/), Proyecto'ace, Buenos Aires
 
 2020 *The First Wave*, Cheong-Gang Shipyard, Geoje
 
