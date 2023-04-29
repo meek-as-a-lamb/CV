@@ -18,7 +18,7 @@
 
 🎮🔗🔍**Selected Group Exhibitions**🌀♦️🔌
 
-2022 [*ATM × WORM: Borderless Point*](https://www.audio-trading-manual.kr/index.html), Oil Culture Tank Park, Seoul
+2022 [*ATM × WORM: Borderless Point*]([https://www.audio-trading-manual.kr/index.html](http://www.audio-trading-manual.kr/participant.html)), Oil Culture Tank Park, Seoul
 
 2021 [*Sound Abject*](https://factory2.kr/SoundAbject), factory 2, Seoul
 
